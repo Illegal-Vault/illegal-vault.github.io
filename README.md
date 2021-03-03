@@ -9,5 +9,5 @@ We can help! We are collecting illegal Growtopia software without stealers, rats
 
 For more information, you can visit our [site](https://illegal-vault.github.io/).
 <p align="center">
-  <img src="https://i.imgur.com/2OCDQPw.png"/>
+  <img src="https://i.imgur.com/uHcxejo.png"/>
 </p>
